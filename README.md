@@ -1,1 +1,1 @@
-https://GITHUB-notoriusnolove.github.io/rsschool-cv/cv
+https://notoriusnolove.github.io/rsschool-cv/cv
